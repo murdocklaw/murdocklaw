@@ -3,7 +3,7 @@
  
 ๋࣭ ⭑⠀　⠀<img src="https://komarev.com/ghpvc/?username=cxstiiel&color=000000&style=plasic&label=ꔫ">⠀　⠀⋆˚࿔
 
-<img src="https://files.catbox.moe/ed71lj.png" width=300>
+<img src="https://files.catbox.moe/px1x7n.png" width=300>
 
 
 ◟　    。　  𝜗𝜚　      ben　   ۠ 　  he him 　　 ۪                            
