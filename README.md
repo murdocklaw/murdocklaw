@@ -1,9 +1,9 @@
 <div align="center">
 
  
-๋࣭ ⭑⠀　⠀<img src="https://komarev.com/ghpvc/?username=cxstiiel&color=000000&style=plasic&label=ꔫ">⠀　⠀⋆˚࿔
+๋࣭ ⭑⠀　⠀<img src="https://komarev.com/ghpvc/?username=cxstiiel&color=000000&style=plasic&label=♯">⠀　⠀⋆˚࿔
 
-<img src="https://files.catbox.moe/px1x7n.png" width=300>
+<img src="https://i.postimg.cc/mk7HwvL4/image-Photoroom-(7).png" width=300>
 
 
 ◟　    。　  𝜗𝜚　      ben　   ۠ 　  he him 　　 ۪                            
