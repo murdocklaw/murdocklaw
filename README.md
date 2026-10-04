@@ -3,7 +3,7 @@
  
 ๋࣭ ⭑⠀　⠀<img src="https://komarev.com/ghpvc/?username=cxstiiel&color=000000&style=plasic&label=♯">⠀　⠀⋆˚࿔
 
-<img src="https://files.catbox.moe/pyrqnq.png" width=300>
+<img src="https://files.catbox.moe/s76ga7.png" width=300>
 
 
 <p align="center">
