@@ -7,7 +7,7 @@
 
 
 <p align="center">
-<img src="https://64.media.tumblr.com/1cef55632f84ef55c83bf3feb83c866e/f1cf32801cb8f28c-e4/s1280x1920/f9346ade50ab73c4709bcd09ced2c7a324f3fd43.pnj" width=175>      вєη ᴏʀ мαтт.⠀⠀<img src="https://pixels.crd.co/assets/images/gallery20/438c9920.gif?v=29416114">⠀⠀7ᴛᴇᴇɴ ʏᴏ
+<img src="https://64.media.tumblr.com/1cef55632f84ef55c83bf3feb83c866e/f1cf32801cb8f28c-e4/s1280x1920/f9346ade50ab73c4709bcd09ced2c7a324f3fd43.pnj" width=175>      вєη ᴏʀ мαтт.⠀⠀<img src="https://64.media.tumblr.com/9e833ab82560d7c9d4728e82ebee87b5/a60c4a1fea7aca07-04/s75x75_c1/cdbcbf3309c3b0bf557f10a5f006e7255300237d.gifv">⠀⠀7ᴛᴇᴇɴ ʏᴏ
 </p>
 
 <p align="center">
